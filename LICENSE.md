@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with no-ban dandy's world Scripts, the #1 Script. Includes auto-farm and no clip for unbeatable
 
 
 
